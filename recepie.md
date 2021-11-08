@@ -1,3 +1,5 @@
+RECEPIE___________
+
 Pre-heat oven to 375 degrees.
 Cream shortening, sugar and milk together. 
 Mix flour, salt and soda.
